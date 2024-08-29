@@ -24,7 +24,7 @@ Além de ser engenheiro de software, também sou criador de conteúdo. Gosto de 
 - **Ajuda**: Tenho uma enorme satisfação em ajudar as pessoas através do conteúdo que compartilho, sempre buscando fazer a diferença na vida de alguém.
 - **Família e Amigos**: Minha família e amigos são meu alicerce, as pessoas mais importantes da minha vida. Eles significam tudo para mim. 🏡
 - **Viagens**: Viajar é uma das minhas grandes paixões; adoro explorar novos lugares, conhecer culturas diferentes e ampliar meus horizontes. ✈️
-- **Futebol**: Sou apaixonado por futebol e torcedor fervoroso do **Grêmio Foot-Ball Porto Alegrense** (Brasil) 🔵⚪⚫
+- **Futebol**: Sou apaixonado por futebol e torcedor fervoroso do **Grêmio Foot-Ball Porto Alegrense** (Brasil) ⚪🔵⚫
 
 ---
 
